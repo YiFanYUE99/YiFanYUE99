@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YiFanYUE99
 - 👀 I’m interested in data analyzing in metabolomics
 - 🌱 I’m currently learning Mass spectrometry methods
-- 💞️ I’m looking to collaborate on bioinformatics
+- 💞️ I’m looking for a forward to a Doctoral Admission in 2024 Fall
 - 📫 How to reach me WeChat：yyfyueyifan; Twitter@YiFanYue99; 
 
 <!---
